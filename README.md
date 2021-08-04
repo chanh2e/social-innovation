@@ -1,2 +1,0 @@
-# social-innovation
-social innovation
